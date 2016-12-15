@@ -1,2 +1,2 @@
 # symmetrical-disco
-Hello my name is Kenisha Erving
+Hello. My name is Kenisha Erving.
